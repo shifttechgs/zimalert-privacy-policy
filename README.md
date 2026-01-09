@@ -1,0 +1,1 @@
+# zimalert-privacy-policy
